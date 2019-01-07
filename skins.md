@@ -1,9 +1,9 @@
 # why would you even want this 5 digit's skins
 
-Click on the skin name to download.
-The (probably) current skin I'm using will be towards the top
-i totally didn't steal this idea from gabe
-shit, most of these skins aren't even mine
+Click on the skin name to download.  
+The (probably) current skin I'm using will be towards the top  
+i totally didn't steal this idea from gabe  
+shit, most of these skins aren't even mine  
 
 # [- +Seoul-Panmimi+16-9](https://elcheer.s-ul.eu/hjQxJp1o.osk)
 ![](https://osu.ppy.sh/ss/12459493)
